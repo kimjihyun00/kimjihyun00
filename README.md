@@ -1,2 +1,2 @@
 
-# 👋 Hi! I', Jihyun.
+# 👋 Hi! I'm, Jihyun.
